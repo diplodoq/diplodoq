@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @diplodoq
-- 👀 I’m interested in  system engineering and crypto.
+- 👀 I’m interested in  system engineering and blockchain technologies.
 - 📫 keklodoq#8418
 - 🇺🇦 
 
