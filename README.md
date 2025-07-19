@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @diplodoq
 - ⚙️ I’m interested in  system engineering and blockchain technologies.
 - 📫 Discord: keklodoq#8418
-- 🇺🇦 
